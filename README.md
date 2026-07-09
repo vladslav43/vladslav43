@@ -41,8 +41,8 @@ AI-assisted Web Developer
 
 ## 📫 Contact
 
-Telegram
+Telegram @vlad_slav43
 
-Email
+Email s348141200@gmail.com
 
-GitHub
+GitHub @vlad_slav43
